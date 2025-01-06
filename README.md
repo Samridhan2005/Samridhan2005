@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **samridhanselvan@gmail.com**
 
-- ⚡ Fun fact **I am very fun guy**
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
